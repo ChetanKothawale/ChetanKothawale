@@ -5,7 +5,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/ChetanKothawale](https://github.com/ChetanKothawale)
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1ru64wfmq_70BCqtrjS6lsqYfzQVLsFK1/view?usp=drive_link](https://drive.google.com/file/d/1ru64wfmq_70BCqtrjS6lsqYfzQVLsFK1/view?usp=drive_link)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1XzpGy9qf1HVo7MwWlVpDZWPY65JO6nlK/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
